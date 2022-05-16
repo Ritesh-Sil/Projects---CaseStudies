@@ -1,1 +1,1 @@
-# Projects---CaseStudies
+# Projects-and-CaseStudies
